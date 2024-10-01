@@ -1,0 +1,1 @@
+# calculare-arie-paralepiped-dreptunghic
